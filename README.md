@@ -1,1 +1,1 @@
-This is my Portfolio Project/By Sai Satwik Kokanti.
+This is my Portfolio Project/By Sai Satwik.
